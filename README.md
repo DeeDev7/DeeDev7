@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DeeDev7
+- 👋 Hi, I’m Deepika
 - 👀 I’m interested in making a positive change
 
 <!---
